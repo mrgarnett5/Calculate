@@ -1,7 +1,7 @@
 # MG INSTANT TC
 Are you having trouble figuring out how much you owe in tip after dinner?
 
-Maybe your math skills are little rusty
+Maybe your math skills are little a rusty
 
 Or you're just tired of carrying a paper and pencil to dinner
 
